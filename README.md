@@ -4,4 +4,4 @@
 
 - Feel free to contact me via:
   LinkedIn - 
-https://www.linkedin.com/mwlite/in/kevin-mukhami
+[https://www.linkedin.com/mwlite/in/kevin-mukhami](https://www.linkedin.com/in/kevin-mukhami/)
